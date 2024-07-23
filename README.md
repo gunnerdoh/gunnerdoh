@@ -1,1 +1,1 @@
-Amateur developer and Husky fan.
+UW Student. 
