@@ -1,1 +1,1 @@
-https://gunnerdoh.vercel.app/
+https://www.gunnerdoh.dev
